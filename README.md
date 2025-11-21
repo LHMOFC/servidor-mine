@@ -1,2 +1,2 @@
 # servidor-mine
-mine dos crias 🌎⛏️
+Mine dos crias 🌎⛏️
